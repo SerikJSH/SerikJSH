@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with **struggle with sleep**
 - 💬 Ask me about something.
 - 📫 How to reach me: **dzen**)
-- 😄 Pronouns: IT
+- 😄 Pronouns: ITman
 - ⚡ Fun fact: *I'm without any clothes now)*
 
